@@ -43,13 +43,17 @@ I have 8349532759025 different personalities depending on who im talking to.. if
 ## Things i like
 dandys world
 
-tyler the creator
+**tyler the creator**
 
-**mouthwashing**
+mouthwashing
 
 cookie run kingdom
 
-**femtanyl** (not the dr*g, the artist)
+**femtanyl**
+
+ddlc
+
+let him go
 
 ![image](https://github.com/user-attachments/assets/c43cd199-6078-4019-ab43-2672c8eec9de)
 
